@@ -1,0 +1,1 @@
+# Triangle-series-of-star
